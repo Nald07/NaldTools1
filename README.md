@@ -1,0 +1,2 @@
+# NaldTools1
+DICOBA GAN JAGAN DI RECODE! 
